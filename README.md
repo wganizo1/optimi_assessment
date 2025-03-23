@@ -1,1 +1,0 @@
-# optimi_assessment
